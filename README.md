@@ -1,0 +1,14 @@
+- 👋 Hi, I’m @SkinnyKitty4356, you can just call me Kitty, or S K
+- 👀 I’m interested in way too many things for one single text line
+- 🌱 I’m currently learning Systems Programming
+-  I’m looking to collaborate on ... projects for school? Maybe some spotify playlists?
+- 📫 How to reach me; SkinnyKitty4356@hotmail.com
+- Pronouns: She/her, they/them
+- I spend a lot of my free time crafting
+- I have a seven year old rescue cat, who came to me as a kitten in the parking lot
+- I prefer sitting on the floor, rather than in chairs. Yes, I am neuro-spicy.
+- I think I'm most excited about going to A.S. because of my friend, who is about to graduate, and how highly he spoke of the program he took
+- I'm vegan, and have been for several years
+- I have mild facial aphasia, which means some faces just blend into the crowd for me. I have to focus on you, to find something that stands out (or associate you with someone famous) to make you recognizeable on sight alone.
+- I DO recognize most voices right away.
+- I'm excited to meet all of you.. at our own paces, of course.
